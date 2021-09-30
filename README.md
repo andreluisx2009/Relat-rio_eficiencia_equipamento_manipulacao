@@ -1,0 +1,1 @@
+# Relat-rio_eficiencia_equipamento_manipulacao
